@@ -1,4 +1,6 @@
-# Hello! I"m Aero57
+# Hello! I'm Aero57
+
+I do things at times. At times, I dont do things. At things, I do times, too.
 
 WIP
 
